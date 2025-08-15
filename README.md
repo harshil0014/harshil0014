@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @harshil0014
 - 💞️ I’m looking to collaborate on projects which would create a huge impact and play a major role in it.
-- 📫 How to reach me - Mobile No./Whatsapp No.-7506336937, Gmail- harshilvora206@gmail.com , Linkedin- www.linkedin.com/in/harshil-vora-338619204
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: 
 
